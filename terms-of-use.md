@@ -1,12 +1,12 @@
 # KThinking TERMS OF SERVICE
 
-Last Updated: 29/1/2023 
+Last Updated: 15/11/2024 
 
 These terms of service ("Terms") apply to your access and use of TikSaved (the "Service"). Please read them carefully.
 
 ## Accepting these Terms
 
-If you access or use the Service, it means you agree to be bound by all of the terms below. So, before you use the Service, please read all of the terms. If you don't agree to all of the terms below, please do not use the Service. Also, if a term does not make sense to you, please let us know by e-mailing phamkiem.dev@icloud.com.
+If you access or use the Service, it means you agree to be bound by all of the terms below. So, before you use the Service, please read all of the terms. If you don't agree to all of the terms below, please do not use the Service. Also, if a term does not make sense to you, please let us know by e-mailing phamkiem.dev@icloud.com or kaipham279@gmail.
 
 ## Changes to these Terms
 
